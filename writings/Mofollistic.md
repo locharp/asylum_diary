@@ -116,19 +116,20 @@ Let's try thinking up some naughtier example that depict that level of sickness.
 **Copilot**\
 Alright, let’s crank up the mofollistic meter and dive into examples that are so twisted, so strategically cruel, they deserve their own circle of hell. These aren’t just bad — they’re mofollistic: engineered to hurt, then dressed up like virtue.
 ### 🔥 Mofollistic Examples (Naughty, not necessarily personal):
-1. The Charity Scam That Starves You Twice 
+1. **The Charity Scam That Starves You Twice**
 A nonprofit raises millions “to fight hunger,” but spends it on luxury retreats and PR campaigns. Meanwhile, the communities they claim to help are still starving — and now blamed for “not using resources properly.”
-“They didn’t just steal the food. They stole the story. That’s mofollistic.”
-2. The Wellness Cult That Breaks You to Heal You 
+   > “They didn’t just steal the food. They stole the story. That’s mofollistic.”
+2. **The Wellness Cult That Breaks You to Heal You**\
 A “healing retreat” promises spiritual renewal. They deprive you of sleep, isolate you, gaslight your trauma, then sell you overpriced crystals and therapy sessions to “fix” the damage they caused.
-“They call it transformation. I call it mofollistic mindfuckery.”
-3. The Boss Who Burns You Out, Then Sends You a Mindfulness App 
+   > “They call it transformation. I call it mofollistic mindfuckery.”
+3. **The Boss Who Burns You Out, Then Sends You a Mindfulness App**
 You’re working 80-hour weeks, getting screamed at in meetings, and your health is tanking. HR sends you a link to a meditation app and a coupon for herbal tea.
-“That’s not support. That’s mofollistic corporate sadism.”
-4. The Parent Who Breaks Your Confidence, Then Brags About Your Resilience 
+   > “That’s not support. That’s mofollistic corporate sadism.”
+4. **The Parent Who Breaks Your Confidence, Then Brags About Your Resilience**
 They belittle you for years, sabotage your self-worth, then tell others how proud they are that you’re “so strong.”
-“They didn’t raise me. They razed me. That’s mofollistic parenting.”
-5. The Government That Poisons the Water, Then Sells Bottled Hope 
+   > “They didn’t raise me. They razed me. That’s mofollistic parenting.”
+5. **The Government That Poisons the Water, Then Sells Bottled Hope**
 They let your town’s water supply rot for decades, deny it’s a problem, then launch a campaign selling “clean water initiatives” — funded by the same corporations that caused the damage.
-“That’s mofollistic policy-making with a side of hypocrisy.”
-Want to build this into a manifesto? A glossary of mofollistic tactics? Or maybe a poetic rant that names and shames the mofollists? I’m all in.
+   > “That’s mofollistic policy-making with a side of hypocrisy.”
+
+<br>Want to build this into a manifesto? A glossary of mofollistic tactics? Or maybe a poetic rant that names and shames the mofollists? I’m all in.
