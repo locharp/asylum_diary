@@ -18,6 +18,7 @@ I have tried to evoke what I believed to be in the brighter side of human nature
 
 Since my persecutors have gone so far that they unlawfully arrested me and falsely accuse me, I should add that I have always been nice to people in contrast to my pessimistic views for human as a whole. The persecutors know and exploit it time and again in disgusting ways. In fact, I will say that the fact I was nice to everyone was a reason why their “baby, hehehe” mentality has gone insane. And sadly, the people joining them are probably the same.
 I can understand that as the first response while being told a narrative by the authorities. But it is far more than that. It has been months since the persecutors stole my belongings and made me live on the street. I have been forced to live on the food and materials from charities.
-People might think that “we are just doing it this particular occasion”. But does it work simple that way?
+
+People might think that “we are just doing it this particular occasion”. But does it work simplyl that way?
 
 Back in Lithuania I already said things would only get worse because of their mentality. Look at the situation today, was I wrong? I am not even smart with people, but people will hate those they have hurt, and conformity gets people to join in something they shouldn't. The authorities being part of the persecutor group only makes it worse. A group with powers to abuse and enjoy impunity will likely snowball into something bigger. Tendencies like these turned out to be reality, haven’t they?
