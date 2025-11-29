@@ -1,0 +1,1 @@
+Even if I can live as a human one day, there isn't much left of me.
