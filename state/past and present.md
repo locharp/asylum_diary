@@ -1,7 +1,3 @@
-When I say treated as an animal, it's, of course, just a figure of speech. I don't treat animals the way they treat me.
-
----
-
 When I applied for asylum in Lithuania, I asked them to check my devices for potential evidence. They refused. I also let them check my belongings on some occasions. For unknown reasons, they had to secretly search my room and my belongings afterward.\
 When I applied for asylum in the UK, I also asked them to check my devices. They refused. For unknown reasons, they had to make up fake "rules" to keep my belongings here and there. Later, they even used criminal methods to take my belongings, including my devices.
 
@@ -15,3 +11,7 @@ I think my current situation is not much different from being falsely imprisoned
 Their original plan years ago, although still sickeningly meant to treat a human as an animal or an object for manipulation, was probably less blatant and inhumane. But as more and more crimes have been committed, they have shifted more and more towards plain power abuses, condition manipulation by substances and devices, and harm.
 
 Before my belongings were stolen, I was often put to sleep during the day and tormented at night at they supposed asylum accommodation.
+
+---
+
+When I say treated as an animal, it's, of course, just a figure of speech. I don't treat animals the way they treat me.
