@@ -1,1 +1,1 @@
-Even if I can live as a human one day, there isn't much left of me.
+Even if I can live human life one day, there won't be much left of me.
