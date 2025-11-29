@@ -10,7 +10,7 @@ I tried to contact the Home Office directly, but they refused. On some occasions
 
 In the past 43 months, I have received barely any genuine documents or letters. The same goes for verbal communication. I think it's safe (not in the sense that I won't get hurt) to say that they are faking an asylum process to create an environment for the foreign persecutors to humiliate me, hurt me, and find ways to discredit my claim about their persecution. Now it extends to undermining me as a person since more and more crimes are committed by not only my original persecutors, but also the "asylums".
 
-I think my current situation is not much different from being falsely imprisoned, just like in Lithuania, for humiliation and harm, like in past years, but worse. It's not much different from being kept as an animal.
+I think my current situation is not much different from being falsely imprisoned, just like in Lithuania, for humiliation and harm, and covering up crimes, but worse. It's not much different from being kept as an animal.
 
 Their original plan years ago, although still sickeningly meant to treat a human as an animal or an object for manipulation, was probably less blatant and inhumane. But as more and more crimes have been committed, they have shifted more and more towards plain power abuses, condition manipulation by substances and devices, and harm.
 
